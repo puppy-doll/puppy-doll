@@ -1,5 +1,5 @@
-![image](https://s7.ezgif.com/tmp/ezgif-752cd4df50e5e.png)
-![image](https://s7.ezgif.com/tmp/ezgif-7410f7c84c407.png)
+![image](https://pouch.jumpshare.com/preview/1RPwi1nM5d0B0MVu5hhdYQnUigvtwGUAfDzPv331xM5IvkywZWwGB1EsdZc34fZ8DIfPFbhyU8QE5keIMZDW_XS15rb3-hv8L_4hsk8NrZw)
+![image](https://pouch.jumpshare.com/preview/btDJbdM4s3Y-IYsEWK-SfCVIf4sTjDcVGRParLzIeJwhtckfC5tAqI9wnnRVZO4PDIfPFbhyU8QE5keIMZDW_fijzU_5SneSQk1xdvq08eY)
 
 <p align="center">
 ︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
@@ -13,4 +13,4 @@
     <img width="400" src="https://spotify-github-profile.kittinanx.com/api/view?uid=31neovqlgcu5nmy5j4vqisn7iike&cover_image=true&theme=novatorem&show_offline=false&background_color=92b5c6&interchange=true&bar_color=92b5c6&bar_color_cover=false)]"alt=spotify" >
 </p>
  
-![image](https://s7.ezgif.com/tmp/ezgif-7bd6926252b11.png)
+![image](https://pouch.jumpshare.com/preview/Z_226MfZbwVMAMXBgjc32pa4bWnxqi04LW0-bnTa2svrl3iBIaC93Jug7hpG-GR5iLKHDbiY45uwRYqJFrC2BD8CKe9dO-ozhyJ8TdXNe44)
