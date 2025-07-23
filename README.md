@@ -5,7 +5,7 @@
 <p align="center">
 ︵ֺ︵     ㅤ𝜚        ۪    ⠀ ⪩⪨
 <p align="center">
-၄⋆၃  ៸៸៸ w/ boyfie 24/7 ♡
+၄⋆၃  ៸៸៸ pro/darkship dni ♡
 <p align="center">
   ฅ ฅ    infp ⸝⸝ overly sensitive  ౨ 
 <p align="center">
